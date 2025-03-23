@@ -1,0 +1,1 @@
+# Smart-Waste-Management-System-AI-Driven-Optimization-for-Resource-Efficiency
